@@ -1,0 +1,1 @@
+# bugioh.github.io
